@@ -2,5 +2,5 @@
 - 👀 I’m interested in python
 - 🌱 I’m currently learning you
 - 💞️ I’m looking to collaborate on you
-- 📫 How to reach me n.r.n discord nicorednose.onegmail.com email
+- 📫 How to reach me n.r.n discord
 - ⚡ Fun fact: nrn
